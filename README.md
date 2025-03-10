@@ -1,2 +1,2 @@
-# -Rayana
+# Rayana
 Сен учун
